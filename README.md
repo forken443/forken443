@@ -1,4 +1,4 @@
-hello guys i am new to cheating and i was wondering if anyone can help me to tell me whats wrong in that code its used to remove shadow and it might be easy but i am new a bit thank you for undrstanding 
+hello guys i am new to doing cheats and i was wondering if anyone can help me to tell me whats wrong in that code its used to remove shadow and it might be easy but i am new a bit thank you for undrstanding 
 
 
 
